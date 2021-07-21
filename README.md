@@ -10,6 +10,21 @@ We have spoken to many people who caught covid. **No one** was as prepared as th
 
 In the world of yesterday we expected to be taken care of and not have to take matters into our own hands. But that is not the world of today. There are things you can do to help if you catch covid, and they aren't expensive or time consuming. So please do consider what actions are appropriate for you, and remember that inaction is unlikely to be appropriate for anyone.
 
+## What steps have we taken?
+More information on each of these steps is set out later in this document.
+
+1. Obviously, **try to avoid covid**
+1. Personal Protective Equipment (**PPE**) of good quality such as N99 masks
+1. Items **for the home** to reduce the risk of infecting each other and that you might need if sick, eg. UV-C air filter and oxygen concentrator
+1. **Supplements** to take now **to boost immunity and as prophylaxis** agaisnt SARS-CoV2
+1. Lateral flow **antigen tests** to use each day and when others come over
+1. **Prepare a plan of action** in case you test positive
+1. Products to take **if you may have been exposed**, eg. eye drops / mouthwash
+1. Things to take **if you test positive**
+1. **Identify doctors now** who can help if/when you need them
+1. **Treatments for long covid**
+1. **Blood tests** to identify persistent problems post-infection
+
 ## Amazon Shopping List
 [Covid preparation list on Amazon UK](https://www.amazon.co.uk/gp/registry/wishlist/2MM4TQRE5ZXP6/ref=bnav_topnav_lists_3?) \
 This is not comprehensive but is a good starting point. Ambroxol is a no-brainer (do read the instructions if you are eg breast feeding) to have at home and is available over-the-counter in many countries. The list does not include the pharmaceuticals listed below which need to be sourced elsewhere, nor does it include all of Laeeth's items. 
